@@ -126,7 +126,87 @@ It starts in the pattern.
 (Full locked Way Back section inserted here — unchanged.)
 
 10. CLOSING BRIDGE: FROM SURVIVAL MAP TO TRAJECTORY
-(Full locked Closing Bridge inserted here — unchanged.)
+
+The Survival Map shows where the pattern came from.
+
+**The Water** shaped the system.  
+**The Alarm** learned what danger felt like.  
+**The Survival Moves** became automatic.  
+**The Rescue Boat** kept the person afloat.  
+**The Way Back** became possible when the whole pattern could finally be seen.
+
+But seeing the map is not the end of the work.
+
+It is the beginning of movement.
+
+Because once a person can see the pattern, they can begin to ask a different question:
+
+**“Where does this go if I keep doing it?”**
+
+That is the question that turns the map into trajectory.
+
+The map explains the pattern.  
+The Trajectory Engine explains the direction.
+
+This matters because insight alone is not enough.
+
+A person can understand what happened and still repeat the same move.  
+They can name the alarm and still obey it.  
+They can understand the rescue boat and still climb back into it.  
+They can see the fork and still choose the familiar road.
+
+That does not mean the map failed.
+
+It means the next layer is needed.
+
+The person has to begin practicing direction.
+
+Not perfectly.  
+Not all at once.  
+Not with a heroic promise.
+
+With one repeatable move.
+
+One pause.  
+One interrupt.  
+One honest sentence.  
+One safer support.  
+One different response.  
+One moment where the old pattern does not get the final word.
+
+That is how trajectory changes.
+
+The Survival Map gives the person language.  
+The Trajectory Engine gives the person leverage.
+
+Together, they answer the two questions WRH is built around:
+
+**“What really happened?”**  
+and  
+**“What becomes possible now?”**
+
+The first question removes the fog.  
+The second question opens the road.
+
+That is the turn.
+
+The person is no longer only looking backward at the wreckage.  
+They are no longer only asking why the pattern formed.
+
+They are beginning to see where the pattern has been taking them —  
+and where a different move could lead.
+
+This is not fate.  
+It is not destiny.  
+It is not prophecy.
+
+It is **pattern, fork, interrupt, repetition, evidence, and direction**.
+
+That is trajectory.
+
+And once the map is visible, the person is no longer lost inside the pattern.
+
+They can begin to move.
 
 11. 12‑SLIDE EXECUTIVE DECK
 (Full 12‑slide deck inserted here — unchanged.)
